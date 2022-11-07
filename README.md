@@ -2,6 +2,16 @@
 
 CN《感时伤逝的华语艺术家》
 
+👋你好，我是这张专辑的创作者
+
+👀这张专辑是完全开放的
+
+🌱持续学习中......
+
+💞️欢迎志同道合的人
+
+📫这是我的联系方式，Discord: https://discord.gg/xTJE5WANAF
+
 ENG《ChinaArtist》
 
 👋 Hi, I’m @zongyangx, the creater of this album.
@@ -13,6 +23,8 @@ ENG《ChinaArtist》
 # CONTENT
 
 1. 感时伤逝的华语艺术家
+   
+   
 
 2. 冷冷冷雨
 
