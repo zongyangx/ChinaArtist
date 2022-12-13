@@ -4,7 +4,7 @@ CN《感时伤逝的华语艺术家》
 
 👋你好，我是这张专辑的创作者，这是一张自2022年10月开始创作的专辑
 
-👀这张专辑是完全开放的
+👀这张专辑是追求自由与浪漫的
 
 🌱持续学习中......
 
@@ -15,7 +15,7 @@ CN《感时伤逝的华语艺术家》
 ENG《ChinaArtist》
 
 👋 Hi, I’m @zongyangx, the creater of this album. This is a album create from Oct 2022.
-👀 This is a completely pro bono album. 
+👀 The album is a quest for freedom and romance. 
 🌱 Learning continue...
 💞️ I am looking to collobrate people who working together on album.
 📫 You can contacts me via Discord: https://discord.gg/xTJE5WANAF
@@ -32,13 +32,17 @@ ENG《ChinaArtist》
 
 5. 他像往常一样在雨夜骑着车 
 
-6. 泽雨 Malaysia
+6. 我们被困在地球了，我们无法返航了
 
-7. 让我回到那个鼓机盛行的年代 20th Centry
+7. 泽雨 Malaysia
 
-8. 等待被发掘 Waiting to Find Starts The Treasure Hunting
+8. 反动派
 
-9. Outro：让我告诉你老地方，还有这这样一群人 New Genaration
+9. 让我回到那个鼓机盛行的年代 20th Centry
+
+10. 等待被发掘 Waiting to Find/Starts The Treasure Hunting
+
+11. Outro：让我告诉你老地方，还有这这样一群人 New Genaration
 
 # Contribution to participation
 
